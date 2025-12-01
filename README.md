@@ -1,7 +1,7 @@
 # Retiit Tewahedo: The Forgotten Truth of Ethiopian Religion  
 **Retiit Tewahedo (ቀናች ሐይማኖት)** represents the original apostolic faith of Ethiopia.  
 This study explores the forgotten truth of Ethiopian religion, rooted in ancient sources such as the *Didaskalia*, *Fetha Negest*, and the *Book of Enoch*.  
-Location of the Community - https://maps.app.goo.gl/gJKZbQpSUofenXEv7
+Location of the Community - https://maps.app.goo.gl/5H3Mnzff2BDQCizF9
 ## Key Highlights  
 - The 364-day calendar preserved in the Book of Enoch and Jubilees.  
 - Megabit (Nisan) as the true first month of the year.  
